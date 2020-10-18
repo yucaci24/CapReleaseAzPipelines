@@ -1,0 +1,1 @@
+<p><b>Ceiba Software</b> En CEIBA trabajamos con pasión para transformar los negocios de nuestros clientes, haciéndolos más exitosos mediante el uso de la tecnología y la innovación.</p>
